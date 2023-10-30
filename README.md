@@ -8,6 +8,7 @@ NM Team Members-4: 7F96B99607F701C86374EBF1947A7226 BALA KRISHNAN.A
 Assignment links:
 1)Blog or Website URL-https://kecsports.blogspot.com/2023/09/football.html 
 2)Facebook Page URL-https://www.facebook.com/profile.php?id=61550612489231&mibextid=ZbWKwL
+3)Instagram Page URL-https://instagram.com/knight_kafe?igshid=YTQwZjQ0NmI0OA==
 
 Demo ideo link:
 https://youtu.be/o_q2-nMZr1I?si=Whud_kOonpO5B1aB
